@@ -1,2 +1,2 @@
 # HSK 3
-Studies form the HSK 3 exam
+Studies forthe HSK 3 exam
